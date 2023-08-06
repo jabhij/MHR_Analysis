@@ -6,6 +6,7 @@ The notebook aims to examine various factors that impact the health of pregnant 
 ### Catch me
 For any query, ping me on 
 - LinkedIn: [@jabhij](https://www.linkedin.com/in/jabhij/)
+- Linkedin: [@surajjavalli](https://www.linkedin.com/in/surajjavalli/)
 - Twitter: [@jabhij](https://twitter.com/jabhij)
 - Web: [LetUsTweak](http://letustweak.com)
 
